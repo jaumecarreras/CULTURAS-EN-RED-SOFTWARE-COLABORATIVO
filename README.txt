@@ -1,0 +1,1 @@
+Colabora con escritos o c—digo que pueda ayudar en la bœsqueda de soluciones para los problemas sociales.  Mejora tu entorno local para mejorar el entorno global. Contribuye a que las personas de todas las culturas puedan encontrar soluciones a problemas ocasionados por la mentalidad extractiva. 
